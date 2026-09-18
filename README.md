@@ -1,1 +1,0 @@
-# gigantsXVI_storie
